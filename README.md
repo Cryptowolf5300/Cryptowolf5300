@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Cryptowolf5300
 - 👀 I’m interested in ...crypto
-- 🌱 I’m currently learning ...coding
+- 🌱 I’m currently learning ...coding ect
 - 💞️ I’m looking to collaborate on ...cryptocurrencies
 - 📫 How to reach me ...cryptowolf5300@gmail.com
 
